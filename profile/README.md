@@ -1,7 +1,7 @@
 #  <img src="https://user-images.githubusercontent.com/61543012/197378911-06bf2e60-c63c-4328-b80d-a0bfe7f343f5.png" height="35" width="35" align-items="center" justify-content="center" /> NFF
-It is importatnt to query the blockchain for meaningful metrics on upcoming trends in the metaverse. Let us guide you using data analytics and market sentiment.
+As we move further futher into uncharted territory it can be a great time to build out a place in the metaverse and invest in assets likely to appreciate as the adoption increases. 
 
-## Fill your account with Non-Fungible Furniture
+## Fill your account with Non-Fungible Furniture and deck out your Metahouse.
 
 🛋️ Frustrated? Can't seem to buy before the blast-off? 
 
